@@ -13,6 +13,12 @@ List of reasons not to care
 
 ## A little about me OwO
 
+> [Well, my name is Skyler White, yo.
+My husband is Walter White, yo.
+Uh huh.
+He told me everything.](https://youtu.be/9PGyaaxxvJg)
+
+
 | random things i like | things i need |
 | ----------- | ----------- |
 | [i do not](https://www.youtube.com/watch?v=OFeb1LK1vhM) | [yes i do](https://www.youtube.com/watch?v=Sk0QCtUbyDk)
