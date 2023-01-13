@@ -21,7 +21,7 @@ He told me everything.](https://youtu.be/9PGyaaxxvJg)
 
 | random things i like | things i need |
 | ----------- | ----------- |
-| [i do not](https://www.youtube.com/watch?v=OFeb1LK1vhM) | [yes i do](https://www.youtube.com/watch?v=Sk0QCtUbyDk)
+| [~~i do not~~](https://www.youtube.com/watch?v=OFeb1LK1vhM) | [yes i do](https://www.youtube.com/watch?v=Sk0QCtUbyDk)
 
 
 
