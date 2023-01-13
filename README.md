@@ -16,3 +16,6 @@ List of reasons not to care
 | random things i like | things i need |
 | ----------- | ----------- |
 | [i do not](https://www.youtube.com/watch?v=OFeb1LK1vhM) | [yes i do](https://www.youtube.com/watch?v=Sk0QCtUbyDk)
+
+
+![alt text](https://scontent.fwnp1-1.fna.fbcdn.net/v/t1.15752-9/322127793_2005838269611465_6539688870192246349_n.jpg?stp=dst-jpg_p403x403&_nc_cat=102&ccb=1-7&_nc_sid=aee45a&_nc_eui2=AeEedHib94fnGC3bnnU_4U9taUVfYsIDRuhpRV9iwgNG6IdpItnKDmYNp5C6oal0MOPlgFw5sElQEXiN08njTWI0&_nc_ohc=QmGidatjplYAX_kMr1w&_nc_ht=scontent.fwnp1-1.fna&oh=03_AdTbzY-7QSbZQRsX5IhSKM0lx53Y1mZq0TelGKK16hlphw&oe=63E8AC20)
