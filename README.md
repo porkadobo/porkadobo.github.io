@@ -32,3 +32,6 @@ He told me everything.](https://youtu.be/9PGyaaxxvJg)
 
 ## *Have my playlist, hope u enjoy <3*
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/7MNGhvbeeuL4kwAC1dMHZf?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+![if u could see that i'm the 1 who understands u](https://scontent.fwnp1-1.fna.fbcdn.net/v/t1.15752-9/325292235_1512466612596298_4740946690686389992_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=ae9488&_nc_eui2=AeE22WWEvbvd1gqPdQox_ikmq_0mJ6rlfkmr_SYnquV-Sb6aTNEGRhdrKYnTOSi0EqUL4FVwZmvHS_N8vUk-198y&_nc_ohc=UlX0ycGAkNIAX8TUZxw&_nc_ht=scontent.fwnp1-1.fna&oh=03_AdTF3Qz-sGE7d-z1V-hbzb_6D50sz5VP5_DzrLyfDenrDQ&oe=63E98451)
