@@ -6,18 +6,18 @@ Carmelo Abiog
 > **Help me I have no coherent thoughts.** 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/AfZmNBonIeI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-List of reasons not to care
+How to not care:
 
-1. [I PUSH MY FINGERS INTO MY EYESSSS](https://youtu.be/6fVE8kSM43I0)
-2. [emotional distress](https://www.youtube.com/watch?v=FvOpPeKSf_4)
-3. [**w_____ h______y**](https://www.youtube.com/watch?v=NLphEFOyoqM)
+- [x] [I PUSH MY FINGERS INTO MY EYESSSS](https://youtu.be/6fVE8kSM43I0)
+- [x] [emotional distress](https://www.youtube.com/watch?v=FvOpPeKSf_4)
+- [x] [**w_____ h______y**](https://www.youtube.com/watch?v=NLphEFOyoqM)
 
 ## A little about me OwO
 
 > [Well, my name is Skyler White, yo.
 My husband is Walter White, yo.
 Uh huh.
-He told me everything.](https://youtu.be/9PGyaaxxvJg)
+He told me everything.](https://youtu.be/9PGyaaxxvJg) 
 
 
 | random things i like | things i need |
@@ -42,3 +42,5 @@ He told me everything.](https://youtu.be/9PGyaaxxvJg)
 | [Boku No Kokoro No Yabai Yatsu](https://chapmanganato.com/manga-dv981004) | 
 | [Mikadono Sanshimai Wa Angai, Choroi](https://manganato.com/manga-nz991308) |
 | [Blue Box](https://chapmanganato.com/manga-lg988863)
+
+
