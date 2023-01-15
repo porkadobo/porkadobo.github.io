@@ -10,7 +10,7 @@ List of reasons not to care
 
 1. [I PUSH MY FINGERS INTO MY EYESSSS](https://youtu.be/6fVE8kSM43I0)
 2. [emotional distress](https://www.youtube.com/watch?v=FvOpPeKSf_4)
-3. [w_____ h______y](https://www.youtube.com/watch?v=NLphEFOyoqM)
+3. [**w_____ h______y**](https://www.youtube.com/watch?v=NLphEFOyoqM)
 
 ## A little about me OwO
 
