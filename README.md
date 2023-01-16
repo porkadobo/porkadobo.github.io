@@ -38,7 +38,7 @@ He told me everything.](https://youtu.be/9PGyaaxxvJg)
 
 ![alt text](https://scontent.fwnp1-1.fna.fbcdn.net/v/t1.15752-9/325292235_1512466612596298_4740946690686389992_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=ae9488&_nc_eui2=AeE22WWEvbvd1gqPdQox_ikmq_0mJ6rlfkmr_SYnquV-Sb6aTNEGRhdrKYnTOSi0EqUL4FVwZmvHS_N8vUk-198y&_nc_ohc=UlX0ycGAkNIAX8TUZxw&_nc_ht=scontent.fwnp1-1.fna&oh=03_AdTF3Qz-sGE7d-z1V-hbzb_6D50sz5VP5_DzrLyfDenrDQ&oe=63E98451) 
 
-| ok but also have some mangas i like | trust me bro UwU
+| ok but also have some manga i like | trust me bro UwU
 | ---------- | ---------- |
 | [Boku No Kokoro No Yabai Yatsu](https://chapmanganato.com/manga-dv981004) | 
 | [Mikadono Sanshimai Wa Angai, Choroi](https://manganato.com/manga-nz991308) |
