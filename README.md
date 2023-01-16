@@ -5,6 +5,8 @@ Carmelo Abiog
 
 > **Help me I have no coherent thoughts.** 
 
+> **Also this website reflects me as a person.**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/AfZmNBonIeI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 How to not care:
 
