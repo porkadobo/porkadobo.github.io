@@ -10,7 +10,7 @@ How to not care:
 
 - [x] [I PUSH MY FINGERS INTO MY EYESSSS](https://youtu.be/6fVE8kSM43I0)
 - [x] [emotional distress](https://www.youtube.com/watch?v=FvOpPeKSf_4)
-- [x] [hope](https://www.youtube.com/watch?v=_JPecqm1VZQ)
+- [x] [~~hope~~](https://www.youtube.com/watch?v=_JPecqm1VZQ)
 - [x] [**w_____ h______y**](https://www.youtube.com/watch?v=NLphEFOyoqM)
 
 ## A little about me OwO
